@@ -1,0 +1,1 @@
+>No habia ejercicio, solo practica y teoria
